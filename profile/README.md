@@ -1,7 +1,7 @@
 # RDR2 Ultimate Trainer
 
 <div align="center">
-<img src="https://pngimg.com/d/red_dead_redemption_PNG42.png" alt="RDR2 Ultimate Trainer" width="900">
+<img src="https://www.pngplay.com/wp-content/uploads/11/Red-Dead-Redemption-Logo-PNG-HD-Free-File-Download.png" alt="RDR2 Ultimate Trainer" width="900">
 </div>
 <br>
 
